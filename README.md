@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jemimah2022
+- 👀 I’m interested in looking for posssible applicants for our company
+- 💞️ I’m looking to collaborate with you
+- 📫 How to reach me, dempseyehr426@gmail.com
